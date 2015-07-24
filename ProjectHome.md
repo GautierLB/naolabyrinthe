@@ -1,0 +1,1 @@
+Nao helps you get out of a mansion while followed by a monster
